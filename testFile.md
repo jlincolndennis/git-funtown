@@ -13,3 +13,7 @@ Oh grandma, what a large... prehensile tentacle you have
 My grandma is a kraken
 
 NO YOUR GRANDMA IS A KRAKEN
+
+My grandma is dead...
+
+... OH. I'M SO, SO SORRY.
